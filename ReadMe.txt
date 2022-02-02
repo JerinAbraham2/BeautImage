@@ -19,6 +19,6 @@ How do I become a member of the Jaworks Team?
 How do I give money to support this incredible company?
     > Also a very frequently asked question, we accept paypal, mastercard and debitcard
 Whats next for Jaworks
-    > This kind of information is highly classified, but I will hint, it has to do with something <<<<<ONLINE>>>>>
+    > This kind of information is highly classified, but I will hint, it has to do with something coding related
     
 
